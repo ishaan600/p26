@@ -1,0 +1,1 @@
+first lay down the pizza bread then add sauce on the bread then add cheese and capsicum , corn and olives and put it in the oven
